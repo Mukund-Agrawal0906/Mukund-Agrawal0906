@@ -17,7 +17,8 @@ Open-Source Contributions
 Creative Coding Challenges
 📫 How to Reach Me
 Email: mukund.agrawal22b@iiitg.ac.in
-LinkedIn: Mukund Agrawal
+LinkedIn: [Mukund Agrawal](https://www.linkedin.com/in/mukund-agrawal-4b103a250/)
+
 😄 Pronouns
 He/Him
 
